@@ -6,5 +6,5 @@ This [ARTICLE_SOURCE](https://www.billboard.com/articles/business/chart-beat/933
 
 Credit: [Parker Mathias](https://twitter.com/ParkerKMathias)
 
-Special thanks to [Christian G.](https://twittercom/c_gebhard) for help!
+Special thanks to [Christian G.](https://twitter.com/c_gebhard) for help!
 
